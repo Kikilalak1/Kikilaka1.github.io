@@ -1,7 +1,7 @@
 Ревю на Приключенията на Присила, кралицата на пустинята
 От Димитър Митев
 
-https://bulgarianqueerfilmreview.wordpress.com/wp-content/uploads/2024/09/image_2024-09-19_010743578.png?w=1024
+https://www.google.com/imgres?q=4%20and%20a%20half%20star%20vector%20png&imgurl=https%3A%2F%2Fwww.pngfind.com%2Fpngs%2Fm%2F536-5360837_four-and-one-half-star-rating-four-and.png&imgrefurl=https%3A%2F%2Fwww.pngfind.com%2Fmpng%2FhbwRxob_four-and-one-half-star-rating-four-and%2F&docid=A1pdKa5KhZR0rM&tbnid=ItwdJCQlJSg_9M&vet=12ahUKEwjxmoqxzvmIAxWqS_EDHSakDcEQM3oECBwQAA..i&w=840&h=197&hcb=2&ved=2ahUKEwjxmoqxzvmIAxWqS_EDHSakDcEQM3oECBwQAA
 
  Приключенията на Присила, кралицата на пустинята, излиза през далечната 1994 
  и бързо се превръща в един от основните филми за драг и лгбти култура в целия свят
