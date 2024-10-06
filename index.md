@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+In my country queer media is often regarded as propaganda thats why i decided to create this blog with the idea of normalising the spread of well made queer cinema.
